@@ -1,0 +1,1 @@
+# EAZY_school
